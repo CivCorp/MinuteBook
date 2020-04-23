@@ -7,4 +7,4 @@ Table of Contents:
 3. [Minutes of the 1st Meeting of Board of Directors](https://pastebin.com/raw/ynY4AZL2)
 4. [Action by Written Unanimous Consent](https://pastebin.com/raw/pWVqYJrs)
 5. [Minutes of the 2nd Meeting of the Board of Directors](https://pastebin.com/HVxuASpE)
-6. [TEST](www.google.com)
+
